@@ -1,2 +1,2 @@
 # Github_tutorial
-來吧！
+偽導急需集資
